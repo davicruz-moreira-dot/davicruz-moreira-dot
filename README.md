@@ -1,7 +1,12 @@
-# 👋 Olá, eu sou [Davi da Cruz Moreira ]
+# 👋 Olá, eu sou Davi da Cruz Moreira 
 
-🎓 Estudante da Aprendizagem Industrial em progamadorde sistemas de informaço
-💻 Interessado em tecnologia, programação e inovação  
+🎓 Estudante da Aprendizagem Industrial em progamadorde sistemas de informaço.(SENSI) Contratado Pela Empresa Seara Alimentos
+🎓Estudante do 1ºano da Escoal Estatual EEB Cecília Vivan 2026.
+
+
+
+💻 Interessado em tecnologia, programação e inovação
+
 
 ---
 
