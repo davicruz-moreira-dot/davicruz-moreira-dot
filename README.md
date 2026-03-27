@@ -3,6 +3,7 @@
 🎓 Estudante da Aprendizagem Industrial em progamadorde sistemas de informaço.(SENSI) Contratado Pela Empresa Seara Alimentos
 
 
+
 🎓Estudante do 1ºano da Escoal Estatual EEB Cecília Vivan 2026.
 
 
